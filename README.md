@@ -3,3 +3,7 @@
 >**An aspiring robotics software engineer and computer science student at the Kibo School of Technology. Passionate about research and building software that provides solutions to emerging and existing problems. Professional interests include Software Development, Machine Learning, Artificial Intelligence, Robotics and Cybersecurity. Ability to complete tasks on time in both individual and team settings. Dependable and reliable, ready to learn and grow with company of different sizes.**
  
 
+##Find me around the web 🌍
+Twitter[@Abdul_Afeez99](https://twitter.com/Abdul_Afeez99)
+Linkedin[AbdulAfeez Adeyemo](https://www.linkedin.com/in/abdulafeez-adeyemo/)
+
